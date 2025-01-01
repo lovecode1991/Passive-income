@@ -1,6 +1,7 @@
 # 《被动收入功法》
 
 > ## 大家好，我是硬核，公众号：硬核创业笔记，微信：4002945。
+> ## 功法（项目）在最底部有导航。
 > ## 飞书链接更新比较频繁：https://yinghe-dmw.feishu.cn/docx/VS0SdnSyioGEIxx7vQJcAKHhnRg?from=from_copylink 
 
 
